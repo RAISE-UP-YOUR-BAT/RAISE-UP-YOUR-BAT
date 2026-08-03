@@ -1,10 +1,9 @@
 **this Readme is a WIP, it is not complete yet and may have some outdated info**
 
-![3591](https://github.com/user-attachments/assets/1aa8f5bc-e5d2-4d09-bbeb-713ae767879f)
-
-
+![3602](https://github.com/user-attachments/assets/f434fc18-426a-4e20-8880-e0ea2e07f478)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&pause=1000&color=F9E218&center=true&vCenter=true&width=435&lines=*+Sorry+to+keep+you+waiting!)](https://git.io/typing-svg)
 ![3595](https://github.com/user-attachments/assets/18f7b16c-f00f-49fc-b93f-14d4b4f6757c)
+![3598](https://github.com/user-attachments/assets/53b4d5e8-b199-42d2-9d3e-214e2da07b7d)
 
 
 
@@ -14,43 +13,42 @@
 
 ₊˚ʚ ✿₊˚✧ ﾟ.
 
-${\textsf{\color{#9ea8f6} '★ I am Bigender and Pan, and go by any}}$ 
-${\textsf{\color{#9ea8f6} pronouns including neos }}$
+${\textsf{\color{#71a425} '★ I am Bigender and Pan, and go by any}}$ 
+${\textsf{\color{#71a425} pronouns including neos }}$
 
-${\textsf{\color{#f5d23d} '☆ I am an alterhuman and IRL, please do}}$
-${\textsf{\color{#f5d23d}not hesitate to ask what my kins are :D }}$
+${\textsf{\color{#845c42} '☆ I am an alterhuman and IRL, please do}}$
+${\textsf{\color{#845c42}not hesitate to ask what my kins are :D }}$
 
-${\textsf{\color{#9ea8f6} '★ I have AuDHD (was diagnosed}}$
-${\textsf{\color{#9ea8f6}by a doctor), self-diagnosed people iwc}}$
+${\textsf{\color{#71a425} '★ I have AuDHD (was diagnosed}}$
+${\textsf{\color{#71a425}by a doctor), self-diagnosed people iwc}}$
 
-${\textsf{\color{#f5d23d} '☆ I am more than likely offtab or }}$
-${\textsf{\color{#f5d23d}making skins, whispering is appreciated! }}$
+${\textsf{\color{#845c42} '☆ I am more than likely offtab or }}$
+${\textsf{\color{#845c42}making skins, whispering is appreciated! }}$
 
-${\textsf{\color{#9ea8f6} '★ I am above 13 but below 26, that's all}}$
-${\textsf{\color{#9ea8f6}i will tell you}}$
+${\textsf{\color{#71a425} '★ I am 16 years of age}}$
 
-${\textsf{\color{#f5d23d} '☆ I've been playing pony town for 3}}$
-${\textsf{\color{#f5d23d}years!}}$
+${\textsf{\color{#845c42} '☆ I've been playing pony town for 3}}$
+${\textsf{\color{#845c42}years!}}$
 
-${\textsf{\color{#9ea8f6}'★ I'm not a roleplayer.I don't join roleplays}}$
-${\textsf{\color{#9ea8f6}or participate in them unless and ONLY unless}}$
-${\textsf{\color{#9ea8f6}I am close with somebody}}$ 
+${\textsf{\color{#71a425}'★ I'm not a roleplayer.I don't join roleplays}}$
+${\textsf{\color{#71a425}or participate in them unless and ONLY unless}}$
+${\textsf{\color{#71a425}I am close with somebody}}$ 
 
-${\textsf{\color{#f5d23d} '☆ Tone tags aren't necessary but very}}$
-${\textsf{\color{#f5d23d}appreciated!}}$
+${\textsf{\color{#845c42} '☆ Tone tags aren't necessary but very}}$
+${\textsf{\color{#845c42}appreciated!}}$
 
-${\textsf{\color{#9ea8f6} '★ I ship lots of ships, but my main ones}}$
-${\textsf{\color{#9ea8f6}are Brutherford, Goodbadge, Kirfluff,}}$
-${\textsf{\color{#9ea8f6}BaconCola, Gamsol, and Ranler}}$
+${\textsf{\color{#71a425} '★ I ship lots of ships, but my main ones}}$
+${\textsf{\color{#71a425}are Brutherford, Goodbadge, Kirfluff,}}$
+${\textsf{\color{#71a425}BaconCola, Gamsol, and Ranler}}$
 
-${\textsf{\color{#f5d23d} '☆ If I hide/block you, I had a reason to. }}$
-${\textsf{\color{#f5d23d} I don't block for no reason}}$<br>
+${\textsf{\color{#845c42} '☆ If I hide/block you, I had a reason to. }}$
+${\textsf{\color{#845c42} I don't block for no reason}}$<br>
 
-${\textsf{\color{#9ea8f6} '★ I have attatchment issues and tend to obbsess over someone and talk to them alot.}}$
-${\textsf{\color{#9ea8f6}i'm also very talkative and energetic with my}}$
-${\textsf{\color{#9ea8f6}speeches when i'm}}$
-${\textsf{\color{#9ea8f6}with someone I love or something i'm}}$
-${\textsf{\color{#9ea8f6}interested in is mentioned.}}$
+${\textsf{\color{#71a425} '★ I have attatchment issues and tend to obbsess over someone and talk to them alot.}}$
+${\textsf{\color{#71a425}i'm also very talkative and energetic with my}}$
+${\textsf{\color{#71a425}speeches when i'm}}$
+${\textsf{\color{#71a425}with someone I love or something i'm}}$
+${\textsf{\color{#71a425}interested in is mentioned.}}$
 <br></details> <p align="left">
 </div>
 
