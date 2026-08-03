@@ -1,4 +1,9 @@
+**this Readme is a WIP, it is not complete yet and may have some outdated info**
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&pause=1000&color=F9E218&center=true&vCenter=true&width=435&lines=*+Sorry+to+keep+you+waiting!)](https://git.io/typing-svg)
+<img width="148" height="150" alt="3597" src="https://github.com/user-attachments/assets/a94d3cda-1b22-4e03-80c5-1d956b9c8006" />
 
+
+![3590](https://github.com/user-attachments/assets/d308414f-77d2-4064-a2ec-6637131ac4f1)
 
 <details align="center"><summary> 👾 – About me </summary>
 
@@ -180,10 +185,9 @@ BASICALLY anything on the basic DNI criteria
 <br></details> <p align="left">
 </div>
 
+![3592](https://github.com/user-attachments/assets/eb2ad4d8-fcf1-4e32-8184-55fa9e640153)
 
-<img width="1024" height="170" alt="2799" src="https://github.com/user-attachments/assets/3c140768-004e-41b3-8a07-fdfc8a62874c" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=30&pause=1000&color=F7CB45&width=435&lines=Welcome+to+the+crew!+%E2%99%A1)](https://git.io/typing-svg)
-![2808](https://github.com/user-attachments/assets/309f3f29-7650-4834-9b8c-3ff7fdb204ff)
+
 
 
