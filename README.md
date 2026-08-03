@@ -1,6 +1,7 @@
 **this Readme is a WIP, it is not complete yet and may have some outdated info**
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&pause=1000&color=F9E218&center=true&vCenter=true&width=435&lines=*+Sorry+to+keep+you+waiting!)](https://git.io/typing-svg)
-<img width="148" height="150" alt="3597" src="https://github.com/user-attachments/assets/a94d3cda-1b22-4e03-80c5-1d956b9c8006" />
+![3595](https://github.com/user-attachments/assets/18f7b16c-f00f-49fc-b93f-14d4b4f6757c)
+
 
 
 ![3590](https://github.com/user-attachments/assets/d308414f-77d2-4064-a2ec-6637131ac4f1)
