@@ -1,18 +1,8 @@
-![2836](https://github.com/user-attachments/assets/2b9418c6-550e-4ca2-84e3-345d4744b1eb)
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=30&pause=1000&color=F7CB45&width=435&lines=Hey%2C+nice+to+meet+you!)
-<img width="1024" height="170" alt="2799" src="https://github.com/user-attachments/assets/d320a6d9-f9c0-4021-9d86-720683dc0900" />
 
-![2788](https://github.com/user-attachments/assets/8c0f18f7-ccc8-4846-baca-76a61d182752) 
-![](https://komarev.com/ghpvc/?username=rutherfordsimplant&label=awesome+people&color=f5d23d)
-
-Boimler/Tendi kins INT PLEASE!11!
-![2798](https://github.com/user-attachments/assets/feb3490b-4474-428c-bec9-09038b56ae9f)
-
-<img width="1021" height="169" alt="2800" src="https://github.com/user-attachments/assets/9278ca9c-5f98-4908-a5a6-e178eaa2a319" />
 
 <details align="center"><summary> 👾 – About me </summary>
 
-⭐️
+₊˚ʚ ✿₊˚✧ ﾟ.
 
 ${\textsf{\color{#9ea8f6} '★ I am Bigender and Pan, and go by any}}$ 
 ${\textsf{\color{#9ea8f6} pronouns including neos }}$
@@ -56,10 +46,14 @@ ${\textsf{\color{#9ea8f6}interested in is mentioned.}}$
 
 
 <details align="center"><summary> ⭐️ – blinkie hoard </summary>
-
+─ ⊹ ⊱ ⊰ ⊹ ─
+  
   ![180](https://github.com/user-attachments/assets/f26390aa-6595-4c81-a9ae-36991ced59c6)![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/17d87720-37f7-4056-91ef-933a97b27719)![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/985c23b2-764f-4186-ae0c-724592b9a1e3)![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/2be28d60-1aa4-42e3-b366-138e267c7983)![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/860057f3-66b1-4392-9bca-654db33df3e5)![6d42cd94-143f-49f9-82be-82932f3d2d89](https://github.com/user-attachments/assets/aad831d6-cb5a-411b-916f-8d9b5d2abf64)![tumblr_e899639281a17c35536dd228d5780f4d_7f36c52a_250](https://github.com/user-attachments/assets/e050fa1a-66cf-488a-bc06-4472cb231eaf)![tumblr_15566b854548db95307d9fff3671135b_dc05dce3_250](https://github.com/user-attachments/assets/9bd3f588-b96a-4b4d-a650-70e1a0c08465)![ezgif-3eeff619532f5abf](https://github.com/user-attachments/assets/a6728050-f9eb-4f59-8108-61ac9a55a79e)![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)![tumblr_30d77b9ca0e21842b3070d3b02e44896_7a4ff1fd_250 gif](https://github.com/user-attachments/assets/b14e3002-1dd2-4b9f-a69c-f669477e3898)![0050-capricorn](https://github.com/user-attachments/assets/818631e4-a9d3-4e2f-be5c-abf1fa4be413)![tumblr_591048b9d6f72f4872d5d8a07623fdff_cb9958d3_250](https://github.com/user-attachments/assets/37949149-8292-41fd-a942-d8425cb3811e)<img width="150" height="20" alt="tumblr_b7719e9dff0e3ccc55ac355ca83354cd_e156e29d_250" src="https://github.com/user-attachments/assets/a18390d2-0dae-4625-a334-f81c617b0eb2" >
 <img width="150" height="20" alt="205" src="https://github.com/user-attachments/assets/f1e7f454-aa86-496d-af26-4a0bcdc0b907" />![207](https://github.com/user-attachments/assets/fdf507aa-ba82-4e23-9922-55c019f51303)!![208](https://github.com/user-attachments/assets/6d86a00e-c5df-44f5-bcd2-060b9f3d6175)<img width="150" height="20" alt="210" src="https://github.com/user-attachments/assets/560b3dcb-09bc-45f0-b59b-348cca8bded3" />
-<img width="150" height="20" alt="209" src="https://github.com/user-attachments/assets/2d97f841-508c-423a-b2f5-74111222b6b5" />
+<img width="150" height="20" alt="209" src="https://github.com/user-attachments/assets/2d97f841-508c-423a-b2f5-74111222b6b5" /><img width="150" height="20" alt="3586" src="https://github.com/user-attachments/assets/0061262e-6102-49ea-a944-786ce5744477" />
+<img width="150" height="20" alt="3585" src="https://github.com/user-attachments/assets/ad0e9a84-0288-411d-9642-17e5454e6cfe" />
+<img width="150" height="20" alt="3584" src="https://github.com/user-attachments/assets/52b9ff2e-4856-4670-99ad-bc1437582958" />
+
 
 
 
@@ -71,11 +65,13 @@ ${\textsf{\color{#9ea8f6}interested in is mentioned.}}$
 </div>
 
 <details align="center"><summary> 🌼 – Fandoms </summary> 
-🐾
+─ ⊹ ⊱ ⊰ ⊹ ─
+
+**Deltarune**
   
 **Bolded=current interest/fixation**
 
-**Animal Hospital**
+Animal Hospital
 
 **Umbert Actually!**
 
@@ -103,7 +99,7 @@ Hamtaro
 
 Dfigures
 
-**Eddsworld**
+Eddsworld
 
 Club Penguin
 
@@ -138,13 +134,12 @@ Osmosis Jones
 <details align="center"><summary> 💛 – Moots to follow </summary> 
   ❤️
 
-@lovinglymythic on Tumblr and Tiktok
+@tiago-paws on Tumblr
 @i_lied_i_am_a_dentist on Tiktok
 @waningcrescendo on Tumblr
 @professionaljasontoddfan on Tiktok
 @galvana28 on most socials
-@saltitheatreblog on Tumblr 
-@aimlesschemistsreqium on Tumblr
+@saltitheatreblog on Tumblr
 @weird-mushro0ms on Tumblr
 <br></details> <p align="left">
 </div>
