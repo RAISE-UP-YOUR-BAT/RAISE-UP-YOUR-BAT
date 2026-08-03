@@ -8,7 +8,7 @@
 
 
 
-![3590](https://github.com/user-attachments/assets/d308414f-77d2-4064-a2ec-6637131ac4f1)
+
 
 <details align="center"><summary> 👾 – About me </summary>
 
