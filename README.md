@@ -73,6 +73,7 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 
 <details align="center"><summary> 🌼 – Fandoms </summary> 
 ─ ⊹ ⊱ ⊰ ⊹ ─
+  
 **Bolded**= current spinterest/fixation
 
   
@@ -139,7 +140,8 @@ Osmosis Jones
 </div>
 
 <details align="center"><summary> 💛 – Moots to follow </summary> 
-  ❤️
+
+─ ⊹ ⊱ ⊰ ⊹ ─
 
 @tiago-paws on Tumblr
 @i_lied_i_am_a_dentist on Tiktok
@@ -152,6 +154,8 @@ Osmosis Jones
 </div>
 
 <details align="center"><summary> 🚫 - DNI/IWC </summary>
+
+─ ⊹ ⊱ ⊰ ⊹ ─
 
 Pro/Darkshippers
 
