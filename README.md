@@ -9,9 +9,8 @@
 
 
 
-<details align="center"><summary> 👾 – About me </summary>
-
-₊˚ʚ ✿₊˚✧ ﾟ.
+<details align="center"><summary> 💛 – About me </summary>
+─ ⊹ ⊱ ⊰ ⊹ ─
 
 ${\textsf{\color{#71a425} '★ I am gender non-confirming and Pan,}}$
 ${\textsf{\color{#71a425}and go by any}}$ 
@@ -52,7 +51,7 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 </div>
 
 
-<details align="center"><summary> ⭐️ – blinkie hoard </summary>
+<details align="center"><summary> 🌼 – blinkie hoard </summary>
 ─ ⊹ ⊱ ⊰ ⊹ ─
   
   ![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/985c23b2-764f-4186-ae0c-724592b9a1e3)![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/2be28d60-1aa4-42e3-b366-138e267c7983)![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/860057f3-66b1-4392-9bca-654db33df3e5)![6d42cd94-143f-49f9-82be-82932f3d2d89](https://github.com/user-attachments/assets/aad831d6-cb5a-411b-916f-8d9b5d2abf64)![tumblr_e899639281a17c35536dd228d5780f4d_7f36c52a_250](https://github.com/user-attachments/assets/e050fa1a-66cf-488a-bc06-4472cb231eaf)![tumblr_15566b854548db95307d9fff3671135b_dc05dce3_250](https://github.com/user-attachments/assets/9bd3f588-b96a-4b4d-a650-70e1a0c08465)![ezgif-3eeff619532f5abf](https://github.com/user-attachments/assets/a6728050-f9eb-4f59-8108-61ac9a55a79e)![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)![tumblr_30d77b9ca0e21842b3070d3b02e44896_7a4ff1fd_250 gif](https://github.com/user-attachments/assets/b14e3002-1dd2-4b9f-a69c-f669477e3898)![0050-capricorn](https://github.com/user-attachments/assets/818631e4-a9d3-4e2f-be5c-abf1fa4be413)![tumblr_591048b9d6f72f4872d5d8a07623fdff_cb9958d3_250](https://github.com/user-attachments/assets/37949149-8292-41fd-a942-d8425cb3811e)<img width="150" height="20" alt="tumblr_b7719e9dff0e3ccc55ac355ca83354cd_e156e29d_250" src="https://github.com/user-attachments/assets/a18390d2-0dae-4625-a334-f81c617b0eb2" >
@@ -71,7 +70,7 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🌼 – Fandoms </summary> 
+<details align="center"><summary> 🪽 – Fandoms </summary> 
 ─ ⊹ ⊱ ⊰ ⊹ ─
   
 **Bolded**= current spinterest/fixation
@@ -139,7 +138,7 @@ Osmosis Jones
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 💛 – Moots to follow </summary> 
+<details align="center"><summary> 🌱 – Moots to follow </summary> 
 
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
@@ -153,7 +152,7 @@ Osmosis Jones
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🚫 - DNI/IWC </summary>
+<details align="center"><summary> 🐾❌️ - DNI/IWC </summary>
 
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
@@ -191,6 +190,20 @@ BASICALLY anything on the basic DNI criteria
 <br></details> <p align="left">
 </div>
 
+<details align="center"><summary> 🐈‍⬛️ – Credits </summary> 
+─ ⊹ ⊱ ⊰ ⊹ ─
+  
+1st divider: https://www.tumblr.com/kodaswrld/761963079444692992/%F0%93%8F%B2-%F0%93%82%83-%CA%9A-credit-me-if-you-use-%C9%9E-%EF%BE%9F?source=share
+2nd divider:
+https://www.tumblr.com/intermixxion/822614430616616960?source=share
+
+bottom divider: 
+https://www.tumblr.com/olenvasynyt/779549344671121408?source=share
+
+i never reblogged the blinkies so i don't know where they are from, i made the badgey one though
+<br></details> <p align="left">
+</div>
+  
 ![3592](https://github.com/user-attachments/assets/eb2ad4d8-fcf1-4e32-8184-55fa9e640153)
 
 
