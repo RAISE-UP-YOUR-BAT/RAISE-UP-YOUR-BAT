@@ -1,8 +1,14 @@
 **this Readme is a WIP, it is not complete yet and may have some outdated info**
 
 ![3602](https://github.com/user-attachments/assets/f434fc18-426a-4e20-8880-e0ea2e07f478)
+
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&pause=1000&color=F9E218&center=true&vCenter=true&width=435&lines=*+Sorry+to+keep+you+waiting!)](https://git.io/typing-svg)
+
 ![3595](https://github.com/user-attachments/assets/18f7b16c-f00f-49fc-b93f-14d4b4f6757c)
+<img width="94" height="50" alt="3629" src="https://github.com/user-attachments/assets/6f6cf2f1-cbac-4645-8306-b77406aead1c" />
+<img width="94" height="50" alt="3628" src="https://github.com/user-attachments/assets/f7163a9d-0714-4a51-932b-31bbf6b72469" />
+<img width="94" height="50" alt="3630" src="https://github.com/user-attachments/assets/e23001b3-7302-44a0-936a-43aa589beb32" />
 ![3598](https://github.com/user-attachments/assets/53b4d5e8-b199-42d2-9d3e-214e2da07b7d)
 
 
@@ -59,6 +65,10 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 <img width="150" height="20" alt="209" src="https://github.com/user-attachments/assets/2d97f841-508c-423a-b2f5-74111222b6b5" /><img width="150" height="20" alt="3586" src="https://github.com/user-attachments/assets/0061262e-6102-49ea-a944-786ce5744477" />
 <img width="150" height="20" alt="3585" src="https://github.com/user-attachments/assets/ad0e9a84-0288-411d-9642-17e5454e6cfe" />
 <img width="150" height="20" alt="3584" src="https://github.com/user-attachments/assets/52b9ff2e-4856-4670-99ad-bc1437582958" />
+<img width="150" height="20" alt="3623" src="https://github.com/user-attachments/assets/288c8fb4-99f9-4341-91f0-2216797c4d4e" />
+<img width="150" height="20" alt="3624" src="https://github.com/user-attachments/assets/94d035d8-d30c-4e75-b402-d115342cbb10" />
+<img width="150" height="20" alt="3626" src="https://github.com/user-attachments/assets/2d3dfd98-1bca-422d-bab5-8d1c3837519a" />
+![3625](https://github.com/user-attachments/assets/4f3099a6-0e16-436f-a244-a422e65719b3)
 
 
 
