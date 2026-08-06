@@ -158,7 +158,6 @@ Osmosis Jones
 @professionaljasontoddfan on Tiktok
 @galvana28 on most socials
 @saltitheatreblog on Tumblr
-@weird-mushro0ms on Tumblr
 <br></details> <p align="left">
 </div>
 
