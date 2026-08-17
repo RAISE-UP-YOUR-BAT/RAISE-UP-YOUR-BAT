@@ -11,10 +11,10 @@
 <details align="center"><summary> 🪣 – About me </summary>
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
-${\textsf{\color{#5386b7} ♤ - I am Autistic and}}$
+${\textsf{\color{#5386b7} I am Autistic and}}$
 ${\textsf{\color{#5386b7}flowkey very clingy}}$
 
-${\textsf{\color{#323232} ♤ - I am a fairly new Deltarune fan,}}$
+${\textsf{\color{#323232} I am a fairly new Deltarune fan,}}$
 ${\textsf{\color{#323232}since I started on chapter 5}}$
 ${\textsf{\color{#323232}instead of chapter 1, because I am...guulp..a l*rp..}}$
 
@@ -22,6 +22,16 @@ ${\textsf{\color{#5386b7}multishipper/rarepairing ENTHUSIAST!!}}$
 
 ${\textsf{\color{#323232}I love my friends and family. I am nothing without them}}$
 
+${\textsf{\color{#5386b7} I LOVE Lancer. He is me. He is my son. He is my blorbo}}$
+
+
+${\textsf{\color{#323232}I'm a very clingy person as previously mentioned, and also kinda slow and I can't quite understand serious things. I'm also Audhd sooo..😓😓}}$
+
+${\textsf{\color{#5386b7}Drawing is my passion ^_^ I have been a self-taught artist since I was a preschooler!}}$
+
+${\textsf{\color{#323232}I kin a lot of characters. Some are even fictionkins/fictionlinks}}$
+
+${\textsf{\color{#5386b7}You may know me as the Lower Decks guy, or a GTC/FSR regular. Even though I haven't been in gfsrs in a while..}}$
 
 <br></details> <p align="left">
 </div>
