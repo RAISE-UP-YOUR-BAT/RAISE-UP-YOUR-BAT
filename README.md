@@ -27,7 +27,7 @@ ${\textsf{\color{#5386b7} I LOVE Lancer. He is me. He is my son. He is my blorbo
 
 ${\textsf{\color{#323232}I'm a very clingy person as previously mentioned, and also kinda slow and I can't quite understand serious things. I'm also Audhd sooo..😓😓}}$
 
-${\textsf{\color{#5386b7}Drawing is my passion ^_^ I have been a self-taught artist since I was a preschooler!}}$
+${\textsf{\color{#5386b7}Drawing is my passion! I have been a self-taught artist since I was a preschooler!}}$
 
 ${\textsf{\color{#323232}I kin a lot of characters. Some are even fictionkins/fictionlinks}}$
 
