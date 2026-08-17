@@ -1,63 +1,17 @@
-**this Readme is a WIP, it is not complete yet and may have some outdated info**
-
-![3602](https://github.com/user-attachments/assets/f434fc18-426a-4e20-8880-e0ea2e07f478)
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&pause=1000&color=F9E218&center=true&vCenter=true&width=435&lines=*+Sorry+to+keep+you+waiting!)](https://git.io/typing-svg)
-
-![3595](https://github.com/user-attachments/assets/18f7b16c-f00f-49fc-b93f-14d4b4f6757c)
-<img width="94" height="50" alt="3629" src="https://github.com/user-attachments/assets/6f6cf2f1-cbac-4645-8306-b77406aead1c" />
-<img width="94" height="50" alt="3628" src="https://github.com/user-attachments/assets/f7163a9d-0714-4a51-932b-31bbf6b72469" />
-<img width="94" height="50" alt="3630" src="https://github.com/user-attachments/assets/e23001b3-7302-44a0-936a-43aa589beb32" />
-![3598](https://github.com/user-attachments/assets/53b4d5e8-b199-42d2-9d3e-214e2da07b7d)
+![3980](https://github.com/user-attachments/assets/fdecf21d-245c-4af1-87ef-852de7f93a5c)
 
 
 
 
-
-<details align="center"><summary> 💛 – About me </summary>
+<details align="center"><summary> 🪣 – About me </summary>
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
-${\textsf{\color{#71a425} '★ I am gender non-confirming and Pan,}}$
-${\textsf{\color{#71a425}and go by any}}$ 
-${\textsf{\color{#71a425}pronouns including neos }}$
-
-${\textsf{\color{#845c42} '★ I have AuDHD (was diagnosed}}$
-${\textsf{\color{#845c42}by a doctor), self-diagnosed people iwc}}$
-
-${\textsf{\color{#71a425} '☆ I am more than likely offtab or }}$
-${\textsf{\color{#71a425}making skins, whispering is appreciated! }}$
-
-${\textsf{\color{#845c42} '★ I am 16 years of age}}$
-
-${\textsf{\color{#71a425} '☆ I've been playing pony town for 3}}$
-${\textsf{\color{#71a425}years!}}$
-
-${\textsf{\color{#845c42}'★ I'm not a roleplayer.I don't join roleplays}}$
-${\textsf{\color{#845c42}or participate in them unless and ONLY unless}}$
-${\textsf{\color{#845c42}I am close with somebody}}$ 
-
-${\textsf{\color{#71a425} '☆ Tone tags aren't necessary but very}}$
-${\textsf{\color{#71a425}appreciated!}}$
-
-${\textsf{\color{#845c42} '★ I am a multishipper and I ship lots}}$
-${\textsf{\color{#845c42}of ships, ie: Brutherford, Flowergore, Blellow,}}$
-${\textsf{\color{#845c42}Flellow, Kirfluff, Baconcola, etc.}}$
-
-${\textsf{\color{#71a425} '☆ If I hide/block you, I had a reason to. }}$
-${\textsf{\color{#71a425} I don't block for no reason}}$<br>
-
-${\textsf{\color{#845c42} '★ I have attatchment issues and tend to}}$
-${\textsf{\color{#845c42}obbsess over someone and talk to them}}$
-${\textsf{\color{#845c42}alot. i'm also very talkative and energetic with my}}$
-${\textsf{\color{#845c42}speeches when i'm}}$
-${\textsf{\color{#845c42}with someone I love or something i'm}}$
-${\textsf{\color{#845c42}interested in is mentioned.}}$
+${\textsf{\color{#5386b7} evil placeholder text }}$
 <br></details> <p align="left">
 </div>
 
 
-<details align="center"><summary> 🌼 – blinkie hoard </summary>
+<details align="center"><summary> 🃏 – blinkie hoard </summary>
 ─ ⊹ ⊱ ⊰ ⊹ ─
   
   ![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/985c23b2-764f-4186-ae0c-724592b9a1e3)![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/2be28d60-1aa4-42e3-b366-138e267c7983)![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/860057f3-66b1-4392-9bca-654db33df3e5)![6d42cd94-143f-49f9-82be-82932f3d2d89](https://github.com/user-attachments/assets/aad831d6-cb5a-411b-916f-8d9b5d2abf64)![tumblr_e899639281a17c35536dd228d5780f4d_7f36c52a_250](https://github.com/user-attachments/assets/e050fa1a-66cf-488a-bc06-4472cb231eaf)![tumblr_15566b854548db95307d9fff3671135b_dc05dce3_250](https://github.com/user-attachments/assets/9bd3f588-b96a-4b4d-a650-70e1a0c08465)![ezgif-3eeff619532f5abf](https://github.com/user-attachments/assets/a6728050-f9eb-4f59-8108-61ac9a55a79e)![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)![tumblr_30d77b9ca0e21842b3070d3b02e44896_7a4ff1fd_250 gif](https://github.com/user-attachments/assets/b14e3002-1dd2-4b9f-a69c-f669477e3898)![0050-capricorn](https://github.com/user-attachments/assets/818631e4-a9d3-4e2f-be5c-abf1fa4be413)![tumblr_591048b9d6f72f4872d5d8a07623fdff_cb9958d3_250](https://github.com/user-attachments/assets/37949149-8292-41fd-a942-d8425cb3811e)<img width="150" height="20" alt="tumblr_b7719e9dff0e3ccc55ac355ca83354cd_e156e29d_250" src="https://github.com/user-attachments/assets/a18390d2-0dae-4625-a334-f81c617b0eb2" >
@@ -68,7 +22,9 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 <img width="150" height="20" alt="3623" src="https://github.com/user-attachments/assets/288c8fb4-99f9-4341-91f0-2216797c4d4e" />
 <img width="150" height="20" alt="3624" src="https://github.com/user-attachments/assets/94d035d8-d30c-4e75-b402-d115342cbb10" />
 <img width="150" height="20" alt="3626" src="https://github.com/user-attachments/assets/2d3dfd98-1bca-422d-bab5-8d1c3837519a" />
-![3625](https://github.com/user-attachments/assets/4f3099a6-0e16-436f-a244-a422e65719b3)
+![3625](https://github.com/user-attachments/assets/4f3099a6-0e16-436f-a244-a422e65719b3)<img width="150" height="20" alt="3969" src="https://github.com/user-attachments/assets/a64281e6-34ec-4aa5-ba43-5781032cc05c" />
+![3970](https://github.com/user-attachments/assets/71c48b45-d89a-4c14-aa18-af115497294e)
+
 
 
 
@@ -80,7 +36,7 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🪽 – Fandoms </summary> 
+<details align="center"><summary> ♠️ – Fandoms </summary> 
 ─ ⊹ ⊱ ⊰ ⊹ ─
   
 **Bolded**= current spinterest/fixation
@@ -90,7 +46,7 @@ ${\textsf{\color{#845c42}interested in is mentioned.}}$
 
 Animal Hospital
 
-**Umbert Actually!**
+Umbert Actually!
 
 The Labyrinth 
   
@@ -142,17 +98,17 @@ Henry Stickmin
 
 SML (fans iwvec, supporters of the crew DNI)
 
-Osmosis Jones
-
+**Osmosis Jones**
 
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🌱 – Moots to follow </summary> 
+<details align="center"><summary> 🪽 – Moots to follow </summary> 
 
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
 @tiago-paws on Tumblr
+@finaleshowdown on Tumblr
 @i_lied_i_am_a_dentist on Tiktok
 @waningcrescendo on Tumblr
 @professionaljasontoddfan on Tiktok
@@ -161,7 +117,7 @@ Osmosis Jones
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🐾❌️ - DNI/IWC </summary>
+<details align="center"><summary> 💙 - DNI/IWC </summary>
 
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
@@ -199,21 +155,17 @@ BASICALLY anything on the basic DNI criteria
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🐈‍⬛️ – Credits </summary> 
+<details align="center"><summary> 🚲 – Credits </summary> 
 ─ ⊹ ⊱ ⊰ ⊹ ─
-  
-1st divider: https://www.tumblr.com/kodaswrld/761963079444692992/%F0%93%8F%B2-%F0%93%82%83-%CA%9A-credit-me-if-you-use-%C9%9E-%EF%BE%9F?source=share
-2nd divider:
-https://www.tumblr.com/intermixxion/822614430616616960?source=share
+I created the banner, the divider at the bottom is made by pixopix
 
-bottom divider: 
-https://www.tumblr.com/olenvasynyt/779549344671121408?source=share
 
-i never reblogged the blinkies so i don't know where they are from, i made the badgey one though
+i didn't reblog all the blinkies so i don't know where they are from, i made the badgey one though
 <br></details> <p align="left">
 </div>
   
-![3592](https://github.com/user-attachments/assets/eb2ad4d8-fcf1-4e32-8184-55fa9e640153)
+<img width="700" height="6" alt="3864" src="https://github.com/user-attachments/assets/67a8a6a9-b86f-471c-ba62-74c3efdc433a" />
+
 
 
 
