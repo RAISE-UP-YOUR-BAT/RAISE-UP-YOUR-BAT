@@ -1,4 +1,8 @@
 ![3980](https://github.com/user-attachments/assets/fdecf21d-245c-4af1-87ef-852de7f93a5c)
+<img width="99" height="56" alt="3965" src="https://github.com/user-attachments/assets/25966b71-a820-48ec-bbe7-cc147d32acd4" />
+<img width="99" height="55" alt="3968" src="https://github.com/user-attachments/assets/e331ff3e-7aaa-4e0c-ac12-52b7047f6818" />
+![3966](https://github.com/user-attachments/assets/c35332bc-f8a3-4065-8517-d6d2282a0b7e)
+
 
 
 
@@ -163,7 +167,17 @@ BASICALLY anything on the basic DNI criteria
   
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
-I created the banner, the divider at the bottom is made by pixopix
+I created the banner except for the divider in the banner, that was created by @theversesystem (https://www.tumblr.com/theversesystem/761402684614098945?source=share) the flags are demiromantic, unlabled, and Pan!
+the divider at the bottom is made by pixopix but the post is for some reason filtered so i can't link it 
+
+the links to the stamps are
+https://www.tumblr.com/vixpunix/788098089489727488/i-made-deltarune-stamps-p1
+
+https://www.tumblr.com/bunnynamedstarry/791270199868391424/what-what
+
+https://www.tumblr.com/girastamps/802231299665477632/more-deltarune-stamps
+
+
 
 
 i didn't reblog all the blinkies so i don't know where they are from, i made the badgey one though
