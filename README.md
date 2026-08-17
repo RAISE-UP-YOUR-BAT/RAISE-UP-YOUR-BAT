@@ -1,3 +1,4 @@
+**View on desktop mode for best experience!**
 ![3980](https://github.com/user-attachments/assets/fdecf21d-245c-4af1-87ef-852de7f93a5c)
 <img width="99" height="56" alt="3965" src="https://github.com/user-attachments/assets/25966b71-a820-48ec-bbe7-cc147d32acd4" />
 <img width="99" height="55" alt="3968" src="https://github.com/user-attachments/assets/e331ff3e-7aaa-4e0c-ac12-52b7047f6818" />
@@ -16,6 +17,7 @@ ${\textsf{\color{#5386b7}flowkey very clingy}}$
 ${\textsf{\color{#323232} ♤ - I am a fairly new Deltarune fan,}}$
 ${\textsf{\color{#323232}since I started on chapter 5}}$
 ${\textsf{\color{#323232}instead of chapter 1, because I am...guulp..a l*rp..}}$
+
 ${\textsf{\color{#5386b7}multishipper/rarepairing ENTHUSIAST!!}}$
 
 ${\textsf{\color{#323232}I love my friends and family. I am nothing without them}}$
