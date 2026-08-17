@@ -121,42 +121,48 @@ SML (fans iwvec, supporters of the crew DNI)
 
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
-Pro/Darkshippers
+${\textsf{\color{#ff0013} red }}$ = DNI/DNF at all
+${\textsf{\color{#ff9f00} orange }}$ = Iwc
 
-MAPs
+${\textsf{\color{#ff0013}Pro/Darkshippers}}$
 
-Supporter of anyone problematic
+${\textsf{\color{#ff0013}MAPs }}$
 
-Reverse Peds
+${\textsf{\color{#ff9f00}Supporter of anyone problematic}}$
 
-Zoos
+${\textsf{\color{#ff0013}Reverse Peds}}$
 
-House of Puso fans (ESPECIALLY if you find the feet thing funny)
+${\textsf{\color{#ff0013}Zoos}}$
 
-AI bros (this is moreso an iwc because i happen to be friends with some..but i am too afraid to block)
+${\textsf{\color{#ff9f00}House of Puso fans}}$
 
-Anyone I know IRL (UNLESS we are family.)
+${\textsf{\color{#ff9f00}AI bros}}$
 
-Vivzieslop fan
+${\textsf{\color{#ff0013}Anyone I know IRL (UNLESS we are family.)}}$
 
--13
+${\textsf{\color{#ff9f00}Vivzieslop fans}}$
 
-Ragebait accounts
+${\textsf{\color{#ff0013}anyone under 13}}$
 
-People who joke about dark topics 
+${\textsf{\color{#ff9f00}anyone under 15}}$
 
-harrasing doubles
+${\textsf{\color{#ff0013}Ragebait accounts}}$
 
-SOME Christians
+${\textsf{\color{#ff0013}People who joke about dark topics}}$
 
-Basic people who make fun of anything
+${\textsf{\color{#ff9f00}Christians}}$
+
+${\textsf{\color{#ff0013}Basic people who make fun of anything}}$
 
 BASICALLY anything on the basic DNI criteria
+
 <br></details> <p align="left">
 </div>
 
 <details align="center"><summary> 🚲 – Credits </summary> 
+  
 ─ ⊹ ⊱ ⊰ ⊹ ─
+
 I created the banner, the divider at the bottom is made by pixopix
 
 
