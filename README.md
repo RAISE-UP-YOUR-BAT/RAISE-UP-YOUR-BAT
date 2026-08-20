@@ -13,7 +13,7 @@
 
 ${\textsf{\color{#323232} I am a fairly new Deltarune fan,}}$
 ${\textsf{\color{#323232}since I started on chapter 5}}$
-${\textsf{\color{#323232}instead of chapter 1, because I am...guulp..a l*rp who can't get the game..}}$
+${\textsf{\color{#323232}instead of chapter 1
 
 ${\textsf{\color{#5386b7}multishipper/rarepairing ENTHUSIAST!!}}$
 
