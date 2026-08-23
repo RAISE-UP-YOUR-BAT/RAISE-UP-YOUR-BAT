@@ -1,3 +1,10 @@
+<img width="700" height="6" alt="3864" src="https://github.com/user-attachments/assets/79ed1c7b-7048-46c9-9bea-315f720281b0" />
+
+
+
+<img width="101" height="57" alt="3967" src="https://github.com/user-attachments/assets/fedbdd99-bc06-4994-b16b-4afd8afb14f3" />
+
+
 uwaaaa this is a wip ok ok ok o
 sorry by the time i am editing this i only got like 4 hours of sleep because I kept thinking of fucking brutherford all night😳😳
 
