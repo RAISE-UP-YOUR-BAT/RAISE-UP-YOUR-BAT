@@ -1,10 +1,5 @@
-**View on desktop mode for best experience!**
-![3980](https://github.com/user-attachments/assets/fdecf21d-245c-4af1-87ef-852de7f93a5c)
-<img width="99" height="56" alt="3965" src="https://github.com/user-attachments/assets/25966b71-a820-48ec-bbe7-cc147d32acd4" />
-<img width="99" height="55" alt="3968" src="https://github.com/user-attachments/assets/e331ff3e-7aaa-4e0c-ac12-52b7047f6818" />
-![3966](https://github.com/user-attachments/assets/c35332bc-f8a3-4065-8517-d6d2282a0b7e)
-
-
+uwaaaa this is a wip ok ok ok o
+sorry by the time i am editing this i only got like 4 hours of sleep because I kept thinking of fucking brutherford all night😳😳
 
 
 
@@ -22,14 +17,17 @@ ${\textsf{\color{#323232}I love my friends and family. I am nothing without them
 ${\textsf{\color{#5386b7} I LOVE Lancer. He is me. He is my son. He is my blorbo}}$
 
 
-${\textsf{\color{#323232}I'm a very clingy person and tend to have favorites, and also kinda slow and I can't quite understand serious things. I'm also Audhd sooo..😓😓}}$
+${\textsf{\color{#323232}I'm a very clingy person and tend to have favorites, and also kinda slow and I can't quite understand serious things. I'm also}}$
+${\textsf{\color{#323232}Audhd sooo..😓😓}}$
 
 ${\textsf{\color{#5386b7}Drawing is my passion! I have been a self-taught artist since I was a preschooler!}}$
 
 ${\textsf{\color{#323232}I kin a lot of characters. Some are even fictionkins/fictionlinks}}$
 
-${\textsf{\color{#5386b7}You may know me as the Lower Decks guy, or a GTC/FSR regular. Even though I haven't been in gfsrs in a while..}}$
+${\textsf{\color{#5386b7}You may know me as the Lower Decks guy, or a GTC/FSR regular. Even though I haven't been in fsrs in a while..}}$
 
+${\textsf{\color{#323232}I'd appreciate if Aqua or Misterman kinnies/fictkins interact :33
+${\textsf{\color{#323232}double kinnies/fictlinks are ok to interact idm
 <br></details> <p align="left">
 </div>
 
@@ -69,7 +67,7 @@ ${\textsf{\color{#5386b7}You may know me as the Lower Decks guy, or a GTC/FSR re
 
 Animal Hospital
 
-Umbert Actually!
+**Umbert Actually!**
 
 The Labyrinth 
   
