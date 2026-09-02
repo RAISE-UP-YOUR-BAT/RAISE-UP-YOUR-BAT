@@ -6,13 +6,32 @@
 <details align="center"><summary> 🌱 – About me </summary>
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
-Placeholder text
+${\textsf{\color{#75fbed} * I am Kristopher but I also like the}}$
+${\textsf{\color{#75fbed}* name Umbert or Kris :-)}}$
 
+${\textsf{\color{#eb0095} * I heavily kin as Kris,}}$
+${\textsf{\color{#eb0095} * i'd rather you iwc if you're a double}}$
+
+${\textsf{\color{#75fbed} * I also kin as Flowery, Umbert, Rutherford,}}$
+${\textsf{\color{#75fbed} * and Lancer}}$
+${\textsf{\color{#eb0095} * I'm usually not dry, and am willing to talk}}$
+${\textsf{\color{#eb0095} * to you! :-D}}$
+
+${\textsf{\color{#75fbed} * I am a multishipper :3 }}$
+${\textsf{\color{#75fbed} * my main ships are Krusie, Kralsei, Flowgore, Brutherford,}}$
+${\textsf{\color{#75fbed} * UNION YAOI!!!!! (guess my fav ship guys),}}$
+${\textsf{\color{#75fbed}and uhh uh Suselle}}$
+
+${\textsf{\color{#eb0095} * I have Audhd and maybe possibly DMDD}}$
+${\textsf{\color{#eb0095} * and a pretty low comphrehensive level.}}$
+${\textsf{\color{#eb0095} * So uh, sorry if I don't understand things}}$
+
+${\textsf{\color{#75fbed} * I am 16 years of age, my date of Birth is}}$
+${\textsf{\color{#75fbed}June 10th}}$
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🗡 – Blinkie Hoard </summary>
-  
+<details align="center"><summary> 🗡 – Blinkie Hoard </summary> 
 ─ ⊹ ⊱ ⊰ ⊹ ─
 
   
