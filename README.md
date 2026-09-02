@@ -18,7 +18,8 @@ ${\textsf{\color{#eb0095} * I'm usually not dry, and am willing to talk}}$
 ${\textsf{\color{#eb0095} * to you! :-D}}$
 
 ${\textsf{\color{#75fbed} * I am a multishipper :3 }}$
-${\textsf{\color{#75fbed} * my main ships are Krusie, Kralsei, Flowgore, Brutherford,}}$
+${\textsf{\color{#75fbed} * my main ships are Krusie, Kralsei,}}$
+${\textsf{\color{#75fbed}Flowgore, Brutherford,}}$
 ${\textsf{\color{#75fbed} * UNION YAOI!!!!! (guess my fav ship guys),}}$
 ${\textsf{\color{#75fbed}and uhh uh Suselle}}$
 
